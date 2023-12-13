@@ -1,0 +1,1 @@
+# kursa_darbs_parklasanas_rezimi
